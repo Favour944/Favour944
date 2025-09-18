@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Favour
-- 👀 I’m a Product Designer
+- 👀 I’m a UI/UX Designer
 - 🌱 Bringing ideas to life through user centered designs...
 - 👨🏾‍💻 I’m looking to collaborate on both web and mobile apps...
 
